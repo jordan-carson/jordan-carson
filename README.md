@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @jordan-carson
-- 🌱 Masters student @JohnsHopkins 
+- 🌱 Masters @JohnsHopkins
+- Undergrad @Hobart
 - 📫 HMU on LinkedIn
 
 <a href="https://ko-fi.com/C0C5J1LY6" target="_blank" rel="noreferrer">
